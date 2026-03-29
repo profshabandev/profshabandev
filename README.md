@@ -1,5 +1,5 @@
-# 💫 About Me:
-Hey there! I'm Shaban, a passionate developer🔥<br> and creative mind currently pursuing my journey at Corvit.<br><br>I love creating new things ⚡<br><br>Turning imagination into reality 🚀
+                                                # 💫 About Me:
+Hey there! I'm Shaban <br> a passionate developer🔥<br> and creative mind currently pursuing my journey at Corvit.<br><br>I love creating new things ⚡<br><br>Turning imagination into reality 🚀
 
 
 ## 🌐 Socials:
